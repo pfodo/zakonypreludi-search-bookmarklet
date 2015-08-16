@@ -1,0 +1,1 @@
+# zakonypreludi-search-bookmarklet
